@@ -1,4 +1,4 @@
-![Thinklife]([https://thinklife.com.br/logo.png](https://thinklife.com.br/wp-content/uploads/2023/05/coruja.png))
+![Thinklife](https://thinklife.com.br/wp-content/uploads/2023/05/coruja.png)
 
 # 🚀 Thinklife – Inovação & Tecnologia para o Seu Negócio
 
